@@ -1,0 +1,1 @@
+# MENDEZ_Voice-Controlled-Home-System-Prototype-JustInMind-
